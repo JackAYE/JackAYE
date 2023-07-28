@@ -1,3 +1,0 @@
-Hi there, just an individual trying to pursue his career (and as a hobby).
-
-Also, the name's pronounced as Jack-A, not Jack-EYE.
